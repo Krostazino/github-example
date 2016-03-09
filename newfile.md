@@ -1,0 +1,1 @@
+gamote mou se makroso
